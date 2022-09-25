@@ -12,7 +12,7 @@ Minor: Business Administration
 
 ----------------------------------------------------------------------------------------------
 
-I love to workout, read books, and watching documentaries in my free time.
+I love to workout, read books, and watch documentaries in my free time.
 
 I'm here to learn from and explore everything that this platform has to offer!
 
