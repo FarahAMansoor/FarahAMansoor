@@ -1,6 +1,6 @@
 Hello and welcome to my GitHub profile.
 
-My name is Farah (pronounced "FUH-RAW") but my friends call me Anthony!
+My name is Farah (pronounced "FUH-RAW")
 
 ----------------------------------------------------------------------------------------------
 
